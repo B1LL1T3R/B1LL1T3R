@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @B1LL1T3R
+- 👀 I’m interested in ykyk
+- 🌱 I’m currently ykyk
+- 💞️ I’m looking to collaborate on ykyk
+- 📫 How to reach me ykyk
+- 😄 Pronouns: ykyk
+- ⚡ Fun fact: ykykyky
